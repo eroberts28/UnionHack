@@ -26,4 +26,29 @@ Finally, I altered Canada’s flag. I changed the way the two stripes are facing
 
 ![4](https://cloud.githubusercontent.com/assets/22593770/19627541/0a21fb7a-9941-11e6-8cbb-38780d5f8980.jpg)
 
+### Final flag ideas
+
+### 1.
+
+![uh5](https://cloud.githubusercontent.com/assets/22593770/20721695/ae724ac2-b65b-11e6-90a0-2777799a8354.jpg)
+
+### 2. 
+
+![uh1](https://cloud.githubusercontent.com/assets/22593770/20721691/ae656bb8-b65b-11e6-9281-440082af0f34.jpg)
+
+### 3.
+
+![uh2](https://cloud.githubusercontent.com/assets/22593770/20721692/ae6eed1e-b65b-11e6-9e92-0c422393e5ad.jpg)
+
+### 4. 
+
+![uh3](https://cloud.githubusercontent.com/assets/22593770/20721693/ae6fb26c-b65b-11e6-8b62-8b43265b7814.jpg)
+
+
+### 5. 
+![uh4](https://cloud.githubusercontent.com/assets/22593770/20721694/ae70b0a4-b65b-11e6-8c70-c7d5b18ec8f9.jpg)
+
+### 6 - Flag for a made up place 
+
+![uh made up](https://cloud.githubusercontent.com/assets/22593770/20721690/ae50fe12-b65b-11e6-8338-4b1af00eb63c.jpg)
 
