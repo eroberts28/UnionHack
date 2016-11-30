@@ -55,6 +55,7 @@ Next I looked at China’s flag; this is one of my favourite flags as it stands.
 ![uh4](https://cloud.githubusercontent.com/assets/22593770/20721694/ae70b0a4-b65b-11e6-8c70-c7d5b18ec8f9.jpg)
 
 ### 6 - Flag for a made up place 
+For my flag for a made up place I wanted to come up with something quite different that would still fit the simple terms of what a flag should be. After thinking about this I decided to create a flag for a place run by animals. My thinking behind this design is that, unlike people, animals can still see everything clearly in the dark but if we were to see an animal in a pitch black room we would only see their eyes. Because of this I decided to create a black flag with bright animal eyes within it. The main eyes that I featured are cats but also an owl too as both of these animals have piercing eyes in the dark. 
 
 ![uh made up](https://cloud.githubusercontent.com/assets/22593770/20721690/ae50fe12-b65b-11e6-8338-4b1af00eb63c.jpg)
 
