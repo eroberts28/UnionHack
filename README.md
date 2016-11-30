@@ -27,6 +27,7 @@ Finally, I altered Canada’s flag. I changed the way the two stripes are facing
 ![4](https://cloud.githubusercontent.com/assets/22593770/19627541/0a21fb7a-9941-11e6-8cbb-38780d5f8980.jpg)
 
 Before starting our Union Hack project we watched a Ted Talk on Vexillology. I found it interesting to learn about the properties a flag should have and getting to look at bad examples of flags to know what to avoid. The key tips I picked up from this were that a flag design should be simple enough that a child could draw it, it should be able to be drawn on a 2cm x 1cm piece of paper (meaning little detail, this is because the average distance a flag will be seen from, it will appear this size) and also that it should contain no more than 3 colours. 
+
  -- 
  
 ### Final flag ideas
